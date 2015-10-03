@@ -1,0 +1,2 @@
+# lmcmz.com
+My blog
